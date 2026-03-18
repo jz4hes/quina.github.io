@@ -1,2 +1,2 @@
 # portfolio
-awal saya buat, maaf masih pemula
+MY FIRST NATIVE PORTFOLIO WEBSITE IN 10TH GRADE CLASS
